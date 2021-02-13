@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Michaelaashley
-- 👀 I’m interested in expressing myself through design and coding.
+- 🦄 I’m interested in expressing myself through design and coding.
 - 🌱 I’m currently learning UX/UI design!
 - 💞️ I’m looking to collaborate on anything involving UX or coding.
 - 📫 How to reach me michaela.smith14@gmail.com
